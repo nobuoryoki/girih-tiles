@@ -1,1 +1,0 @@
-# Girih Tiles
